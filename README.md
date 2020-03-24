@@ -45,6 +45,5 @@ On this short tutorial you will learn on how to repair broken clothes hanger.
 # Thank you!
 
 # Contact Details:
-
 Facebook: Kirby Castillote
 YouTube Channel: Mari Kirby Castillote
